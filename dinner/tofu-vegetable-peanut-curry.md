@@ -1,6 +1,8 @@
 # Tofu Vegetable Peanut Curry with Rice
 
 ## Ingredients
+(for 2 people)
+
 * 50 g   Roasted Peanuts
 * 1 tsp  Peanutbutter (creamy or crunchy)
 * 1 tsp  Currypaste, (red or green)
